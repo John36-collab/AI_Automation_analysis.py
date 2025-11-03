@@ -186,3 +186,5 @@ AI thrives on iteration — your workflow should too. 🔄
 
 --
 
+Short video link:(https://drive.google.com/file/d/1vtPBUlaPLcaskAPbL74ZFhbihuO2cvTZ/view?usp=drivesdk) 
+
